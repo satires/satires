@@ -1,2 +1,2 @@
 # Website:
-(Click Here)[dirtyslut.xyz]
+[Click Here](dirtyslut.xyz)
